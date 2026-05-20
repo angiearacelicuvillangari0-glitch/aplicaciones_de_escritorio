@@ -1,1 +1,0 @@
-# aplicaciones_de_escritorio
